@@ -1,16 +1,18 @@
-## Hi there 👋
+![UbelHi](https://github.com/user-attachments/assets/69b2394a-ba90-4ecb-a6f8-f2fd11890ea8)
 
-<!--
-**Suverent-Shiro/Suverent-Shiro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# Hi. I don't know how you ended up here, but hi i guess?
+Btw, I'm **Shiro** and I'm a Counter-Strike 2 enjoyer. Besides I also like 🧇 waffles and i'm trying to learn how to code...
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I speak 🇵🇱 Polish, 🇺🇸 English and I also started learning 🇯🇵 Japanese
+
+
+<details>
+  <summary><i>click me</i></summary>
+
+  _If for some reason you want to contact me:_
+  - Discord / suverent_shiro <br/>
+  - X (*Twitter*) / @Suverent_Shiro <br/>
+  
+   *Anime girl is Übel from Sousou no Frieren.*
+</details>
