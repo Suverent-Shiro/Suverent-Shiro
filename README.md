@@ -4,7 +4,7 @@
 Btw, I'm **Shiro** and I'm a Counter-Strike 2 enjoyer. Besides I also like 🧇 waffles and i'm trying to learn how to code...
 
 
-I speak 🇵🇱 Polish, 🇺🇸 English and I also started learning 🇯🇵 Japanese
+I speak 🇵🇱 Polish and 🇺🇸 English and I'm also learning 🇯🇵 Japanese and 🇩🇪 German
 
 
 <details>
