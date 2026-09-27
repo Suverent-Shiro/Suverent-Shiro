@@ -1,10 +1,10 @@
 ![UbelHi](https://github.com/user-attachments/assets/69b2394a-ba90-4ecb-a6f8-f2fd11890ea8)
 
-# Hi. I don't know how you ended up here, but hi i guess?
-Btw, I'm **Shiro** and I'm a Counter-Strike 2 enjoyer. Besides I also like 🧇 waffles and i'm trying to learn how to code...
+# Hi. My pc broken send help
+btw I'm **Shiro** and im tech and linux enthusiast. I also like coding (barely), do sum anime art (also barely) and collect anime figurines. 
 
 
-I speak 🇵🇱 Polish and 🇺🇸 English and I'm also learning 🇯🇵 Japanese and 🇩🇪 German
+I speak 🇵🇱 Polish and 🇺🇸 English, but I'm also learning 🇯🇵 Japanese and I'm also being forced to learn 🇩🇪 German lol
 
 
 <details>
