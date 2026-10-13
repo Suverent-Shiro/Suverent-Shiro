@@ -1,6 +1,6 @@
 ![UbelHi](https://github.com/user-attachments/assets/69b2394a-ba90-4ecb-a6f8-f2fd11890ea8)
 
-# Hi. My pc broken send help
+# Hi. rtx somehow came back to life.
 btw I'm **Shiro** and im tech and linux enthusiast. I also like coding (barely), do sum anime art (also barely) and collect anime figurines. 
 
 
